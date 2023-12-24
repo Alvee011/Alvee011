@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Alvee
 - 👀 I’m interested in games
-- 🌱 I’m currently learning academic study for exams
+- 🌱 I’m currently learning SEO
 - 📫 My contracts https://alvee.bio.link/
